@@ -5,7 +5,10 @@
   seraphim/seraph/sera ∘ 6teen + any prns !!!
 </p>
 <p align="center">
-I really like hypmic lots! I mostly go batshit crazy over MCD/NB, Ichikuu, Sasasama, Hitojaku, and Hifugen!
+I really like hypmic lots! I mostly go batshit crazy over mcd/nb, ichikuu, sasasama, hitojaku, hifudo, and hifugen!
+</p>
+<p align="center">
+OH and my fave hypmic characters are the entirety of bad ass temple + hifumi !!!
 </p>
 <p align="center">
 Besides hypmic, I also love madoka magica, banana fish, splatoon 3, milgram, scp foundation, and rpg horrors :-3
