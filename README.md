@@ -11,7 +11,7 @@ I really like hypmic lots! I mostly go batshit crazy over mcd/nb, ichikuu, sasas
 OH and my fave hypmic characters are the entirety of bad ass temple + hifumi !!!
 </p>
 <p align="center">
-Besides hypmic, I also love madoka magica, banana fish, splatoon 3, milgram, scp foundation, and rpg horrors :-3
+Besides hypmic, I also love madoka magica, banana fish, blue period, milgram, alien stage, and rpg horrors! :-3
 </p>
 <p align="center">
 Pleaseeeee talk to me if you like any of my interests! I love making new friends!! thank you <3
