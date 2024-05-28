@@ -2,7 +2,7 @@
 <img src="https://i.imgur.com/gcY2QWl.png"/>
 </p>
 <p align="center">
-  seraphim/seraph/sera ∘ 6teen + any prns !!!
+  seraphim/seraph/sera • 6teen + any prns !!!
 </p>
 <p align="center">
 currently hyperfixated on mahoyaku, hypmic, blue period, and madoka magica :-3
