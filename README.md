@@ -5,7 +5,7 @@
   seraphim/seraph/sera • 6teen + any prns !!!
 </p>
 <p align="center">
-currently hyperfixated on mahoyaku, hypmic, blue period, and madoka magica :-3
+currently hyperfixated on mahoyaku, hypmic, blue period, hades (the game), and madoka magica :-3
 </p>
 <p align="center">
 other interests are scp, splatoon, rpg horrors, and music projects :-D!
