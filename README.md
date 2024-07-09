@@ -3,7 +3,7 @@
   <img src="https://64.media.tumblr.com/7f99355b594d5ce71cf70c998bd3cd12/1caf13684d6b5f83-f4/s1280x1920/2d2c2d17a930ffb6ebcac26af8d599f62696d971.gif"/>
 </p>
 <p align="center">
-  Seraphim/Seraph/Sera • 7teen • Any Prns !!! <3
+  Seraphim/Seraph/Sera • 7teen • Any Pronouns !!! <3
 </p>
 <p align="center">
 My currently main interests are Jujutsu Kaisen, Paradox Live, Hypnosis Mic, Mahoyaku, Blue Period, and Madoka Magica!
