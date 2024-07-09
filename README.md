@@ -12,7 +12,7 @@ My currently main interests are jujutsu kaisen, paradox live, hypnosis mic, maho
 My other interests are alien stage, milgram, charisma house, rpgmaker horrors, vocaloid, and supergiant games. :-D
 </p>
 <p align="center">
-I'm an extrovert and play PonyTown solely to make friends, so please don't hesitate to interact! (I will most likely see if you send a whisp btw!)
+I'm an extrovert and play PonyTown solely to make friends, so please don't hesitate to whisper me to interact!
 </p>
 <p align="center">
 Also take a look at my rentry or send me things via my retrospring, linked to the left, if you would like! :-)
