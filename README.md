@@ -8,7 +8,7 @@
 Seraphim/Seraph/Sera • 7teen • Any Pronouns !!! <3
 </p>
 <p align="center">
-My currently main interests are Jujutsu Kaisen, Paradox Live, Hypnosis Mic, Mahoyaku, Blue Period, and Madoka Magica!
+My current main interests are Jujutsu Kaisen, Paradox Live, Hypnosis Mic, Mahoyaku, Blue Period, and Madoka Magica!
 </p>
 <p align="center">
 My other interests are SCP, Alien Stage, Charisma House, RPGmaker Horrors, Vocaloid, and Supergiant Games. :-D
