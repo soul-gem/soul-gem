@@ -17,7 +17,7 @@ My other interests are SCP, Alien Stage, Charisma House, RPGmaker Horrors, Vocal
 I'm an extrovert and play PonyTown solely to make friends, so please don't hesitate to whisper me for interaction!
 </p>
 <p align="center">
-Also take a look at my Rentry or send me things via my Retrospring, linked to the left, if you would like! :-)
+Also take a look at my Rentry or sign my Atabook, linked to the left, if you would like! :-)
 </p>
     <p align="center">
 <img src="https://64.media.tumblr.com/ccbff409eadedcda7c63b3b057aee66c/9b7ddb5905533fa5-ed/s1280x1920/cb6b9de159c647dcead38bcaf2165288b0da39e0.jpg"/>
