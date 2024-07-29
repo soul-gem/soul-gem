@@ -1,8 +1,8 @@
 <p align="center">
-<img src="https://i.imgur.com/vt9rfvl.gif"/>
+<img src="https://i.imgur.com/rQaKGiF.png"/>
 </p>
 <p align="center">
-<img src="https://i.ibb.co/3T7C5q4/thindiv.png"/>
+<img src="https://imgur.com/ogEaVdD.gif"/>
 </p>
 <p align="center">
 Seraphim/Seraph/Sera • 7teen • Any Pronouns !!! <3
@@ -20,5 +20,5 @@ I'm an extrovert and play PonyTown solely to make friends, so please don't hesit
 Also take a look at my Rentry or sign my Atabook/Strawpage, linked to the left, if you would like! :-)
 </p>
     <p align="center">
-<img src="https://i.ibb.co/3T7C5q4/thindiv.png"/>
+<img src="https://imgur.com/ogEaVdD.gif"/>
 </p>
