@@ -5,7 +5,7 @@
 <img src="https://gifs.crd.co/assets/images/gallery03/79681ceb.gif?v=ef433a6f"/>
 </p>
 <p align="center">
-Seraphim/Seraph/Sera • 7teen • Any Pronouns ♡
+Seraphim/Seraph/Sera • 7teen • They/It Pronouns ♡
 </p>
 <p align="center">
 My current main interests are Tokyo Ghoul, Devilman, Paradox Live, Hypnosis Mic, Mahoyaku, Blue Period, and Madoka Magica!
