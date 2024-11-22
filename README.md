@@ -8,7 +8,7 @@
 Seraphim/Seraph/Sera • 7teen • They/It Pronouns ♡
 </p>
 <p align="center">
-My current main interests are Tokyo Ghoul, Devilman, Paradox Live, Hypnosis Mic, Mahoyaku, Blue Period, and Madoka Magica!
+My current main interests are Tokyo Ghoul, Devilman, Paradox Live, Hypnosis Mic, Mahoyaku, Magi, and Madoka Magica!
 </p>
 <p align="center">
 My other interests are SCP, Alien Stage, Charisma House, MILGRAM, RPGmaker Horrors, Jujutsu Kaisen, Vocaloid, Choujin X, and Omniscient Reader's Viewpoint. :-3
