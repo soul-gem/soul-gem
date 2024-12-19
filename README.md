@@ -8,10 +8,10 @@
 Seraphim/Seraph/Sera • 7teen • They/It Pronouns ♡
 </p>
 <p align="center">
-My current main interests are Magi, Tokyo Ghoul, Devilman, Paradox Live, Hypnosis Mic, Mahoyaku, and Madoka Magica!
+My current main interests are Magi, Attack On Titan, Tokyo Ghoul, Devilman, Paradox Live, Hypnosis Mic, and Madoka Magica!
 </p>
 <p align="center">
-My other interests are SCP, Alien Stage, Charisma House, MILGRAM, RPGmaker Horrors, JJK, Vocaloid, Choujin X, and ORV. :-D
+My other interests are SCP, Alien Stage, Charisma House, MILGRAM, Mahoyaku, JJK, Vocaloid, Choujin X, and ORV. :-D
 </p>
 <p align="center">
 I'm an extrovert and play PonyTown solely to make friends, so please don't hesitate to whisper me for interaction!
