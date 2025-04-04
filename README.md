@@ -17,7 +17,7 @@ My other interests are SCP, Alien Stage, Charisma House, MILGRAM, Mahoyaku, JJK,
 I'm an extrovert and play PonyTown solely to make friends, so please don't hesitate to whisper me for interaction!
 </p>
 <p align="center">
-Also, take a look at my Rentry or sign my Atabook/Strawpage, linked to the left (top on mobile), if you would like! :-)
+Also, take a look at my Carrd or sign my Atabook/Strawpage, linked to the left (top on mobile), if you would like! :-)
 </p>
     <p align="center">
 <img src="https://i.imgur.com/4WgJ82E.png"/>
