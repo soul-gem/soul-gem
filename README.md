@@ -8,7 +8,7 @@
 Seraphim/Seraph/Sera • 7teen • They/It Pronouns ♡
 </p>
 <p align="center">
-My current main interests are Guilty Gear, Attack On Titan, Tokyo Ghoul, Devilman, Paradox Live, Hypnosis Mic, and Madoka Magica!
+My current main interests are Guilty Gear, Attack On Titan, Tokyo Ghoul, Fate, Paradox Live, Hypnosis Mic, and Madoka Magica!
 </p>
 <p align="center">
 My other interests are SCP, Alien Stage, Charisma House, MILGRAM, Mahoyaku, JJK, Vocaloid, Choujin X, and Magi. :-D
