@@ -5,7 +5,7 @@
 <img src="https://i.imgur.com/wzSFcyB.gif"/>
 </p>
 <p align="center">
-Seraphim/Seraph/Sera • 8teen • They/It Pronouns ♡
+Seraphim/Seraph/Sera • 8teen • It/They Pronouns ♡
 </p>
 <p align="center">
 My current main interests are Fate, Madoka Magica, Guilty Gear, Tokyo Ghoul, Vocaloid, Magi, and Hypnosis Mic!
