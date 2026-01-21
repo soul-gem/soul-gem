@@ -14,7 +14,7 @@ My current main interests are Fate, Madoka Magica, Guilty Gear, Tokyo Ghoul, Voc
 My other interests are SCP, Alien Stage, Charisma House, Mahoyaku, JJK, Attack on Titan, Choujin X, and Paradox Live. :-D
 </p>
 <p align="center">
-I'm an extrovert and play PonyTown solely to make friends, so please don't hesitate to whisper me for interaction!
+I'm always around unless specifically stated (sleeping or afk in my name). Whisper me to interact, I love chatting!
 </p>
 <p align="center">
 Also, take a look at my Carrd or sign my Atabook/Strawpage, linked to the left (top on mobile), if you would like! :-)
